@@ -1,1 +1,1 @@
-# social__media.github.io/social meadia.html/facebook.html/instagram.html/youtube.html
+# social__media.github.io/social media.html/facebook.html/instagram.html/youtube.html
